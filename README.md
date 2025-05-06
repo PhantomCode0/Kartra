@@ -19,6 +19,8 @@ tar Wars fans, rejoice! Kartra's "May the 4th Be With You" special offer extends
 
 After the initial 3-month period, your plan converts to the regular $119/month pricing. But don’t worry — you can always upgrade, downgrade, or cancel before then!
 
+[![🚀 Get Kartra for $99 – Save $258 Now!](https://res.cloudinary.com/dav29ivcg/image/upload/v1746517494/Get_Kartra_for_99_Save_258_Now_spi2ee.png)](https://affinco.com/go/kartra)
+
 ## What Exactly Is Kartra (And Why Do You Need It)?
 
 Kartra is the Swiss Army knife of marketing platforms. It combines everything you need to run your online business in one place:
@@ -133,6 +135,8 @@ Let’s get real — $99 for three months of a complete marketing suite is banan
 
 **Q: Will my price increase after the special offer?**  
 **A:** Yes, after your 3-month special, pricing reverts to the standard $119/month for the Starter plan.
+
+[![👉 Claim the $99 for 3 Months Deal Now!](https://res.cloudinary.com/dav29ivcg/image/upload/v1746517495/Claim_the_99_for_3_Months_Deal_Now_s1dktx.png)](https://affinco.com/go/kartra)
 
 ## ✅ Final Thoughts: Is This Kartra Deal Worth It?
 
