@@ -1,12 +1,14 @@
 # Kartra Coupon Code 2025: Get 3 Months for $99 (Save $258 Now!)
 
+[![Kartra Coupon](https://res.cloudinary.com/dav29ivcg/image/upload/v1746517254/Kartra_Coupon_g89exk.png)](https://affinco.com/go/kartra)
+
 Looking for a hot Kartra coupon that actually works? Ready to grab Kartra's all-in-one marketing platform without draining your wallet? You're in luck! For a limited time, new customers can snag **3 months of Kartra Starter for just $99 total** — that’s a whopping **$258 in savings** compared to the regular monthly price! This **May 2025 Kartra deal** is hotter than fresh pizza on a cold night, and it won’t stick around forever.
 
 Let’s dive into everything you need to know about this Kartra discount, how to apply it, and why Kartra might just be the marketing magic your business needs right now.
 
 ## 🔥 Current Kartra Special Offer: May 2025
 
-Kartra's "May the 4th Be With You" special offer has been extended! New customers can now:
+tar Wars fans, rejoice! Kartra's "May the 4th Be With You" special offer extends beyond the holiday weekend! New customers can now:
 
 - Get **3 months of Kartra Starter for just $99 total**
 - Save **$258 off regular pricing** ($119/month)
